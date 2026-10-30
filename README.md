@@ -7,9 +7,5 @@ Head on to **[blog.smritea.ai](https://blog.smritea.ai)** to engage with the con
 ## Join the community
 
 - **Reddit** — [r/SmriteaAI](https://www.reddit.com/r/SmriteaAI)
-- **LinkedIn** — [SmriteaAI](https://www.linkedin.com/company/SmriteaAI)
+- **LinkedIn** — [SmriteaAI](https://www.linkedin.com/company/smritea-ai)
 - **Instagram** — [@SmriteaAI](https://www.instagram.com/SmriteaAI)
-- **X (Twitter)** — [@SmriteaAI](https://x.com/SmriteaAI)
-- **YouTube** — [@SmriteaAI](https://www.youtube.com/@SmriteaAI)
-
-> Social handles use the placeholder `SmriteaAI` where the real handle isn't confirmed yet — update the links above once finalized.
